@@ -5,3 +5,5 @@ I can reclaim that btw im high funticoning autistic and I find it really funny b
 ![lab subjects](https://profile-counter.glitch.me/{partiesareforlosers}/count.svg)
 
 I cant find the cool one all rh ponytown users use soo pls link the cool viewer count to me by whisperinf or somethihg thx
+
+I talk like the characters I cospkay somegimes not like rp but just mannerisms of talking like meowing or 3rd person dont worry I onoy do it for funsies and comfort I dont talk like taht all the time 
