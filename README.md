@@ -8,8 +8,6 @@ I cant find the cool one all rhe ponytown users use soo pls link the cool viewer
 
 I ❤️ gifted and matching skins. ladies ❤️ my swag. women fear me fish ❤️(want me. I ❤️ olya. I 
 
-if u ship me w my friends especially the one tagged on my profile im gonna judge u audibly and visibly hard like I will tell u ur a freak we're all insanely uncomfortable with that wo if u do dont be passive aggressive when we correct u on our boundaries or ill CALL U OUT ON THAT TOOOO!!!
-
 DUDE IM NOT DYSLEXIC I JUSG DONT CARE ABOUT MY SPELLUNB ANYMROEE if u try correct me ill just go along with it its impossible to try and shame me using Misspellings my fingrs just hit buttons
 
 ![379D7447-A37E-44A9-A84E-3958ADF0EEA3](https://github.com/user-attachments/assets/824c34a7-0426-4aa1-a4c5-3c0f4a3a77b8)
