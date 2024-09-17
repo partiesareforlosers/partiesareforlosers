@@ -4,6 +4,10 @@ I can reclaim that btw im high funticoning autistic and I find it really funny l
 
 ![lab subjects](https://profile-counter.glitch.me/{partiesareforlosers}/count.svg)
 
-I cant find the cool one all rh ponytown users use soo pls link the cool viewer count to me by whisperinf or somethihg thx
+I cant find the cool one all rhe ponytown users use soo pls link the cool viewer count to me by whisperinf or somethihg thx
 
-I talk like the characters I cospkay somegimes not like rp but just mannerisms of talking like meowing or 3rd person dont worry I onoy do it for funsies and comfort I dont talk like taht all the time and its very arre rare I usually only do it with close friends of min
+I ❤️ gifted and matching skins. ladies ❤️ my swag. women fear me fish ❤️(want me. I ❤️ olya. I 
+
+DUDE IM NOT DYSLEXIC I JUSG DONT CARE ABOUT MY SPELLUNB ANYMROEE if u try correct me ill just go along with it its impossible to try and shame me using Misspellings my fingrs just hit buttons
+
+![379D7447-A37E-44A9-A84E-3958ADF0EEA3](https://github.com/user-attachments/assets/824c34a7-0426-4aa1-a4c5-3c0f4a3a77b8)
