@@ -2,9 +2,9 @@ haii wip cause i need to get graphics and shit :( hmu if u can make me a rentry 
 
 high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude to u or extremely sensitive sowwy and if i say a slur (that i can reclaim) um... no i didnt
 
-![lab subjects](https://profile-counter.glitch.me/{partiesareforlosers}/count.svg)
+![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=red&label=my+lab+subjects) 
 
-I cant find the cool one all rhe ponytown users use soo pls link the cool viewer count to me by whisperinf or somethihg thx
+IGOT THE COOL COUNTER THANKS TO THE PERSON WHO WHSIPERED IT TO ME ^_^6 its actually supposed to be like 351 but i replaced it so ummm
 
 I ❤️ gifted and matching skins. ladies ❤️ my swag. women fear me fish ❤️(want me. I ❤️ olya. I 
 
