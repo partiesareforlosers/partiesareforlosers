@@ -4,7 +4,7 @@ high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude
 
 ![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=red&label=my+lab+subjects) 
 
-IGOT THE COOL COUNTER THANKS TO THE PERSON WHO WHSIPERED IT TO ME ^_^6 its actually supposed to be like 351 but i replaced it so ummm
+IGOT THE COOL COUNTER THANKS TO THE PERSON WHO WHSIPERED IT TO ME ^_^6
 
 I ❤️ gifted and matching skins. ladies ❤️ my swag. women fear me fish ❤️(want me. I ❤️ olya. I 
 
