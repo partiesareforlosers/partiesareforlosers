@@ -6,6 +6,8 @@ high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude
 
 IGOT THE COOL COUNTER THANKS TO THE PERSON WHO WHSIPERED IT TO ME ^_^6
 
+some info just for until i rentry
+
 friend reqs r off for a reason lol I have scopophobia dont worry too much if I dont add u I still wana be friends probanly
 
 dont cover me with ur fat pony head especially if i was there already and u see me visibly i will probably ask u to move and if u dont just know im judging u INNNCCCREEDIBLY HARD 
