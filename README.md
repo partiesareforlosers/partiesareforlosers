@@ -6,6 +6,8 @@ high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude
 
 IGOT THE COOL COUNTER THANKS TO THE PERSON WHO WHSIPERED IT TO ME ^_^6
 
+friend reqs r off for a reason lol I have scopophobia dont worry too much if I dont add u I still wana be friends probanly
+
 I ❤️ gifted and matching skins. ladies ❤️ my swag. women fear me fish ❤️(want me. I ❤️ olya. I 
 
 DUDE IM NOT DYSLEXIC I JUSG DONT CARE ABOUT MY SPELLUNB ANYMROEE if u try correct me ill just go along with it its impossible to try and shame me using Misspellings my fingrs just hit buttons
