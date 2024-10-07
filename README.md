@@ -10,8 +10,6 @@ some info just for until i rentry
 
 friend reqs r off for a reason lol I have scopophobia dont worry too much if I dont add u I still wana be friends probanly
 
-dont cover me with ur fat pony head especially if i was there already and u see me visibly i will probably ask u to move and if u dont just know im judging u INNNCCCREEDIBLY HARD 
-
 if we're cuddling and u wanna movw just ask me i want to cuddle more than i want to sit in my spoti WILL MOVE FOR U
 
 I ❤️ gifted and matching skins. ladies ❤️ my swag. women fear me fish ❤️(want me. I ❤️ olya. I 
