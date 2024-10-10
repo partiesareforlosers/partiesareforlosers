@@ -10,6 +10,8 @@ some info just for until i rentry
 
 friend reqs r off for a reason lol I have scopophobia dont worry too much if I dont add u I still wana be friends probanly
 
+I struggle to hold conversation ynless it happens naturally from some event like drama or soemthing or we're already fridns and I know ur chill like that  soooooo uu might have to keep yapping on to tet me to yap too
+
 if we're cuddling and u wanna movw just ask me i want to cuddle more than i want to sit in my spoti WILL MOVE FOR U
 
 I ❤️ gifted and matching skins. ladies ❤️ my swag. women fear me fish ❤️(want me. I ❤️ olya. I 
