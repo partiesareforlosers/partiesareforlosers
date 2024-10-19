@@ -1,6 +1,6 @@
 haii wip cause i need to get graphics and shit :( hmu if u can make me a rentry PLEASEEE bc I am genuinely so fumb brahh
 
-high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude to u or extremely sensitive sowwy and if i say a slur (that i can reclaim) um... no i didnt
+high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude to u or extremely sensitive sowwy and if i say a slur (that i can reclaim) um... no i didnt.. u can still cuddle when im iwec just be careful how u act towards me 
 
 ![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=red&label=my+lab+subjects) 
 
