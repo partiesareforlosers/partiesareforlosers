@@ -4,10 +4,6 @@ high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude
 
 ![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=ad62dc&label=my+lab+subjects) 
 
-IGOT THE COOL COUNTER THANKS TO THE PERSON WHO WHSIPERED IT TO ME ^_^6
-
-some info just for until i rentry
-
 friend reqs r off for a reason lol I have scopophobia dont worry too much if I dont add u I still wana be friends probanly
 
 I struggle to hold conversation ynless it happens naturally from some event like drama or soemthing or we're already fridns and I know ur chill like that  soooooo uu might have to keep yapping on to tet me to yap too
