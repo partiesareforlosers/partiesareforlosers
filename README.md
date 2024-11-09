@@ -1,3 +1,4 @@
+![yeap](https://github.com/user-attachments/assets/335159d3-b1b1-4c48-9ff8-d77bf0004c52)
 haii wip cause i need to get graphics and stuff :(
 
 high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude to u or extremely sensitive sowwy and if i say a slur (that i can reclaim) um... no i didnt.. u can still cuddle when im iwec just be careful how u act towards me 
