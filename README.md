@@ -3,7 +3,7 @@ haii wip cause i need to get graphics and stuff :(
 
 high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude to u or extremely sensitive, u can still cuddle when im iwec just be careful how u act towards me ^_^ or just dont talk to me at all that works too
 
-![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=ad62dc&label=my+lab+subjects) 
+![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=fb8f94&label=my+lab+subjects) 
 
 friend reqs r off for a reason lol I have scopophobia dont worry too much if I dont add u I still wana be friends probanly
 
