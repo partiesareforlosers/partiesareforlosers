@@ -1,4 +1,4 @@
-![yeap](https://github.com/user-attachments/assets/282caf8e-7e72-4785-adb8-db85a89f7027)
+![cpompact](https://github.com/user-attachments/assets/d7c0c566-7aac-4a2c-b3a5-bf8927c38204)
 haii wip cause i need to get graphics and stuff :(
 
 high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude to u or extremely sensitive, u can still cuddle when im iwec just be careful how u act towards me ^_^ or just dont talk to me at all that works too
@@ -13,4 +13,4 @@ if we're friends ask to make matching skins nowww also i lov egifted skins nudge
 
 DUDE IM NOT DYSLEXIC I JUSG DONT CARE ABOUT MY SPELLUNB ANYMROEE if u try correct me ill just go along with it its impossible to try and shame me using Misspellings my fingrs just hit buttons
 
-![379D7447-A37E-44A9-A84E-3958ADF0EEA3](https://github.com/user-attachments/assets/824c34a7-0426-4aa1-a4c5-3c0f4a3a77b8)
+![cpompact](https://github.com/user-attachments/assets/8fb9ac02-782e-4c70-b4a0-d76459f08b24)
