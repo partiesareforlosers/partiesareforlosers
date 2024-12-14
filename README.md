@@ -1,6 +1,6 @@
 ![cpompact](https://github.com/user-attachments/assets/91e429ff-4933-4dd6-8a23-511ad969b349)
 
-high funticoning autistic and when i say iwec i MEAN IT!!!! i will be super rude to u or extremely sensitive, u can still cuddle when im iwec just be careful how u act towards me ^_^ or just dont talk to me at all that works too
+high funticoning autistic and when i say iwec i MEAN IT!!!!
 
 ![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=fb8f94&label=my+lab+subjects) 
 
