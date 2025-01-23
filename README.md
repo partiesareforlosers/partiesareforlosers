@@ -1,7 +1,7 @@
 
 high funticoning autistic and when i say iwec i MEAN IT!!!!
 
-![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=cc612d&label=my+lab+subjects) 
+![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=1729cf&label=my+lab+subjects) 🩻
 
 friend reqs r off for a reason lol I have scopophobia dont worry too much if I dont add u I still wana be friends probanly
 
