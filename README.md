@@ -5,7 +5,7 @@ high functioning autistic and when i say iwec i MEAN IT!!!!
 
 my accounr is a fucking MESS rn sorry 👎👎 ignore everything ill fix it eventually
 
-okay im normal again u ca approach me ! i loveee people
+sorry I lied again im off my meds and I rhink im going insane sorry.........
 
 if we're friends ask to make matching skins nowww also i lov egifted skins plweasee gift me skins
 
