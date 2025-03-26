@@ -3,9 +3,7 @@ high functioning autistic and when i say iwec i MEAN IT!!!!
 
 ![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=20a2f5&label=my+lab+subjects) 🍔
 
-my accounr is a fucking MESS rn sorry 👎👎 ignore everything ill fix it eventually
-
-sorry I lied again im off my meds and I rhink im going insane sorry.........
+i say slurs and stuff but i love people so feel free to interact with me as long as ur not a freak 🙂
 
 if we're friends ask to make matching skins nowww also i lov egifted skins plweasee gift me skins
 
