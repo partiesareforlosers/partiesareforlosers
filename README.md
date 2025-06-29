@@ -3,6 +3,8 @@
 
 ![](https://komarev.com/ghpvc/?username=partiesareforlosers&color=f5b342&label=my+lab+subjects) 🥘
 
+<img src="[sad](https://postimg.cc/gxdmHz5S)" width="120" height="100">
+
 
 i love people so feel free to interact with me as long as ur not a freak (bc u know we're strangers) 🙂 beware i block freely and i dont fw a lot of popilar fandoms u and me r not the same
 
