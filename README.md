@@ -12,4 +12,4 @@ i love people so feel free to interact with me as long as ur not a freak (bc u k
 
 no im nottt dyslexic I just dont care abt my spelling and if u make fun of me for it trust me I rlly dgaf
 
-dnc or inspo lolll! i only follow friends + no tonetags, if u sign my strawpage i might take a while to get to it sory but i will eventually put it down 🫶
+i have a million alts guess which are mine
