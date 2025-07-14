@@ -12,4 +12,4 @@ i love people so feel free to interact with me as long as ur not a freak (bc u k
 
 no im nottt dyslexic I just dont care abt my spelling and if u make fun of me for it trust me I rlly dgaf
 
-i have a million alts guess which are mine
+i hate friend requests i only send them/accept if i feel like it (never) even if we're friends, i struggle to keep friends bc some behaviours weird me out and if i catch wind of a weird feeling im out + sometimes i dont like peoples mutual friends and im really blunt about my opinions on them, sometimes i can randomly have asocial tendencies so just keep this in mind if u approach me with the intent of being friends lol 
