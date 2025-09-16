@@ -7,7 +7,9 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawp](https://ritsusakumaa.straw.page/)⠀ [atabook](https://partiesareforlosers.atabook.org/) ⠀[rentry](https://rentry.co/partiessuck)
 <p align="center">
+<p align="center"> hi I like github users and I want these ones so bad so. if u know who owns them or would be willing 2 give rhem to me ill do literally anything to own them just ask. high 2 low priority, DURlN, punishingbird, blackforestcookie, RERlR
+    
 <p align="center"> all i do on this game is cuddle cuddle cuddle ill cuddle you first too. id love to be cuddled. if you want to be behind me and cuddle GO AHEAD!! DO IT!!!! if you want me to be in front just ask me ill move. speaking of moving if you want to cuddle me and dont want to move just call me over I Will Come
 
 
-<p align="center"> temporary rentry to reduce space ... i think im hmm withdrawing.. socially bare with me.. read rentry byi thank yaww
+<p align="center"> read rentry byi 
