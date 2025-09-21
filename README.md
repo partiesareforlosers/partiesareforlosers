@@ -7,7 +7,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawp](https://ritsusakumaa.straw.page/)⠀ [atabook](https://partiesareforlosers.atabook.org/) ⠀[rentry](https://rentry.co/partiessuck)
 <p align="center">
-<p align="center"> hi I like github users and I want these ones so bad so. if u know who owns them or would be willing 2 give rhem to me ill do literally anything to own them just ask. high 2 low priority, DURlN, punishingbird, blackforestcookie, RERlR
+<p align="center"> if you ever see me in some corny bum ass cosplay like fnf or an old ugly pony r something its just bevause im showing it off cs I saw someone talking or its the only 1 I have from some random media plsss ignore it its so embarrassing 👎👎👎 those are all two years old
     
 <p align="center"> all i do on this game is cuddle cuddle cuddle ill cuddle you first too. id love to be cuddled. if you want to be behind me and cuddle GO AHEAD!! DO IT!!!! if you want me to be in front just ask me ill move. speaking of moving if you want to cuddle me and dont want to move just call me over I Will Come
 
