@@ -11,4 +11,4 @@
 <p align="center"> all i do on this game is cuddle cuddle cuddle ill cuddle you first too. id love to be cuddled. if you want to be behind me and cuddle GO AHEAD!! DO IT!!!! if you want me to be in front just ask me ill move. speaking of moving if you want to cuddle me and dont want to move just call me over I Will Come
 
 
-<p align="center"> read rentry byi 
+<p align="center"> read rentry byi its just an info dump theres a better one coming soon
