@@ -13,3 +13,4 @@
 <p align="center"> um -_- im extremely EXTREMELY friendly and there r lots of ppl i want to be friends with on this game but im like mega nervous & dont want to look like a desperate tryhard so if u wanna be friends just cuddle me a bunch / try talking to me about somehting. im extremely low energy and if ur always energetic i might struggle to keep up but um i liketo talk
 
 <p align="center"> read rentry byi its just an info dump theres a better one coming soon
+<p align="center"> um my strawp says I update it regularly I do not I lied .... but ladies I see your drawings and it makes me smileso keep up tbe good work
