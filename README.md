@@ -3,7 +3,7 @@
 
 <p align="center"> <img src= "https://komarev.com/ghpvc/?username=partiesareforlosers&color=9DC94B&label=my+lab+subjects" alt="rats" /> 🫑
 
-<p align="center"> <img src= "https://i.postimg.cc/KcsKfLTC/Untitled1358-20251020012129.png" alt="WINDOW">
+<p align="center"> <img src= "https://i.postimg.cc/jd0Gf35W/IMG-9729.png" alt="WINDOW">
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawp](https://ritsusakumaa.straw.page/)⠀ [atabook](https://partiesareforlosers.atabook.org/) ⠀[rentry](https://rentry.co/partiessuck)
 <p align="center">
