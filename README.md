@@ -3,7 +3,7 @@
 
 <p align="center"> <img src= "https://komarev.com/ghpvc/?username=partiesareforlosers&color=000000&label=my+lab+subjects" alt="rats" /> 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strwp](https://ritsusakumaa.straw.page/)⠀ [ata](https://partiesareforlosers.atabook.org/) ⠀[rntry](https://rentry.co/partiessuck)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strwp](https://ritsusakumaa.straw.page/)⠀ [ata](https://partiesareforlosers.atabook.org/) ⠀[rntry](https://rentry.co/punishingbird)
 <p align="center">
 
 <p align="center"> yeah this game is fucking bum bro there are like a couple cool people on here but I can count them on one hand and still have fingers left over
