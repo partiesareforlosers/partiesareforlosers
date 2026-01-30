@@ -3,8 +3,6 @@
 
 <p align="center"> <img src= "https://komarev.com/ghpvc/?username=partiesareforlosers&color=000000&label=my+lab+subjects" alt="rats" /> 
 
-hi im taking a little break from ponytown as i hate thois game and all its players and honestly the break has been coming since 2023 hahaha ill be back in a little bit. ill probably only get on now and then if my 2 ffriends ask me to because i actually like my friends
-
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strwp](https://agejos.straw.page)⠀ [ata](https://partiesareforlosers.atabook.org/) ⠀[rntry](https://rentry.co/punishingbird)
 <p align="center">
