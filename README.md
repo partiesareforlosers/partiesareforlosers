@@ -7,8 +7,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strwp](https://agejos.straw.page)⠀ [ata](https://partiesareforlosers.atabook.org/) ⠀[rntry](https://rentry.co/punishingbird)
 <p align="center">
 
-<p align="center"> yeah this game is fucking bum bro there are like a couple cool people on here but I can count them on one hand and still have fingers left over
-<p align="center"> ahhhhhh I dont like anyone on this game except for my frieeendssss aahhhhhhhh maxed pony limit yet I still manage to make new skins eveyrday thank u god bless
+<p align="center"> everyone on this game is a joke
+<p align="center"> i WILL NOT tolerate my friends being mutuals of com/dark/proshippers in any form and will cut you off if it is not addressed and dealt with accordingly. if you are friends with someone who is unaware they are friends with odd people you should confront them, even if not 100% positive, if you believe there is the slightest chance they are friends. if you parade around as an anti yet are ACTIVELY friends with people who are directly related to these guys or are these guys i will cut you off.
     
-<p align="center"> all i do on this game is cuddle cuddle cuddle ill cuddle you first too. id love to be cuddled. if you want to be behind me and cuddle go ahead please please if you want me to be in front just ask me ill move. speaking of moving if you want to cuddle me and dont want to move just call me over I Will Come
-    
+<p align="center"> read my rentry before you interact specifically my dni, i have updated it several times since ive made it because i always manage to find new fucking things on this game lol
