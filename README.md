@@ -7,11 +7,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strwp](https://agejos.straw.page)⠀ [ata](https://partiesareforlosers.atabook.org/) ⠀[rntry](https://rentry.co/punishingbird)
 <p align="center">
 
-<p align="center"> everyone on this game is a joke
+<p align="center"> struggle to int first & 10/10 times will not⠀⠀c+h encouraged
 <p align="center"> 
 <p align="center"> read my rentry before you interact 
-<p align="center"> hi my friend got screenshotged and posted onto pinterest by smbdy named himmak1367 without her permission & its really fucking ill that ppl r putting someone elses hard work onto a site for others to copy without being regarded for it please mass report the pin to get it taken down and report that ugly bums account too so it doesn't continue happening https://ie.pinterest.com/pin/988258711996412327/ thank u 
-
-
-what actual loser whispered this shit to me 😭😭 
-<img width="453" height="100" alt="Screenshot 2026-04-10 054328" src="https://github.com/user-attachments/assets/517dae5b-fa2c-4bc6-ac45-9492b2d6879e" />
